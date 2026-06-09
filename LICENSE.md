@@ -1,4 +1,4 @@
-
+ultimate Script for rivals offers the most advanced rivals Script, with auto-farm and speed. Perfect for dominating any match.
 
 
 
